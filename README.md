@@ -1,4 +1,4 @@
-# 🚀 Innovation Hub - Liga Acadêmica de Inovação e Empreendedorismo  
+# 🚀 Innovation Hub - Liga Acadêmica de Empreendedorismo  
 
 Bem-vindo ao **Innovation Hub** – o epicentro da inovação e do empreendedorismo na **Universidade Federal de Sergipe (UFS)!** 💡✨  
 
